@@ -1,2 +1,1 @@
-# chenjunjie1994.github.io
-junjie's homepage
+### [Junjie's Homepage](https://chenjunjie1994.github.io)
